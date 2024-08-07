@@ -1,0 +1,2 @@
+# ProjektetGjirafa
+Projektet e mia👍.
